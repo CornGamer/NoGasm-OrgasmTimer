@@ -1,4 +1,4 @@
-# Orgasm-Timer
+# Orgasm-Timer Tease and & Denial.
 count down to orgasm/edging
 --------------------------------------------------
 This is a stop watch for those who don't really want an orgasm.
